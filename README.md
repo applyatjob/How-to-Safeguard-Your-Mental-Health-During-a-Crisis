@@ -65,7 +65,6 @@ Mental and physical well-being are intimately related. Keeping up a healthy life
 
 Conclusion:
 Maintaining general wellbeing during a crisis depends on protecting your mental health. You may strengthen your resilience and deal with difficult situations more skillfully by recognizing your feelings, maintaining relationships with loved ones, engaging in mindfulness exercises, and asking for assistance when necessary. Recall that asking for help is acceptable and that even tiny actions may have a significant impact on maintaining your mental health.
-You can visit our site: Applyatjob.com
- https://applyatjob.com/hiring-employee
-
+You can visit our site: Applyatjob.com<br>
+ https://applyatjob.com/hiring-employee<br>
 https://applyatjob.com/jobs
