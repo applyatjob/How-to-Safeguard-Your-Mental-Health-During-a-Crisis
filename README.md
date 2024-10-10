@@ -1,4 +1,5 @@
 # How-to-Safeguard-Your-Mental-Health-During-a-Crisis
+How to Safeguard Your Mental Health During a Crisis
 How to Preserve Your Emotional Well-Being in an Emergency
 Whether it's a local calamity, a personal setback, or a worldwide epidemic, protecting your mental health is essential during these times of stress. Your mental health may be seriously impacted by the strong emotions of dread, worry, and uncertainty that might be brought on by a crisis. But, you can safeguard your mental well-being and go through these trying times with fortitude and courage if you know what to do. In this article, we will cover practical strategies to assist preserve your mental health amid a crisis.
 
