@@ -21,7 +21,7 @@ Constant exposure to unfavorable news, especially during a crisis, may drive wor
 3. Maintain Contact with Your Loved Ones
 Having social support is essential for preserving mental health, particularly in emergency situations. Maintaining virtual connections with loved ones can offer emotional support in situations where physical presence is not possible.
 
-. Make frequent contact: Use text messaging, video chats, or phone conversations to stay in contact with loved ones. Regular communication with close ones helps lessen emotions of loneliness.
+ - Make frequent contact: Use text messaging, video chats, or phone conversations to stay in contact with loved ones. Regular communication with close ones helps lessen emotions of loneliness.
 
  - Join online communities: If you don't have many friends, you might want to look into joining online communities or virtual support groups where individuals go through similar struggles. Having conversations that are encouraging might make you feel less alone and more understood.
 
